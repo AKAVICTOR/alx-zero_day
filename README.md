@@ -1,1 +1,1 @@
-Never late to try
+Never too late to start
